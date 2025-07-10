@@ -19,3 +19,7 @@ femisola is a king femi is a king
 to my life is good for life
 miracle is possible
 with God All things are possible
+to commoute go for js id 
+i am fine 
+oh lord 
+bininary numner
