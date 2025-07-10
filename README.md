@@ -24,3 +24,4 @@ i am fine
 oh lord 
 bininary numner
 angle
+look at me now i am fine 
