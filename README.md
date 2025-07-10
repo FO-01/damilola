@@ -6,3 +6,4 @@ the is  skdnkd
 hdiid tondk fhah
 hfhfkddo
 to all of all in nigeria
+to my life you must obey God
