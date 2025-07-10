@@ -9,3 +9,4 @@ to all of all in nigeria
 to my life you must obey God
 go to my baby girl over them all
 go baba femi bab damilola
+ocean is my goal way
