@@ -13,3 +13,4 @@ ocean is my goal way
 over to God 
 good all the time my borther therde is othe way than God 
 for you my God foreover thank you my God
+so good God of life, you are God Alone
