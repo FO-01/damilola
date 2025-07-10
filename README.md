@@ -10,4 +10,5 @@ to my life you must obey God
 go to my baby girl over them all
 go baba femi bab damilola
 ocean is my goal way
-over to God
+over to God 
+good all the time my borther therde is othe way than God 
