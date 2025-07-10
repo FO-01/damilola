@@ -18,3 +18,4 @@ my love my love is foreever
 femisola is a king femi is a king
 to my life is good for life
 miracle is possible
+with God All things are possible
