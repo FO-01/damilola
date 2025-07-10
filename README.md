@@ -7,3 +7,4 @@ hdiid tondk fhah
 hfhfkddo
 to all of all in nigeria
 to my life you must obey God
+go to my baby girl over them all
